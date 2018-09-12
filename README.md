@@ -1,1 +1,0 @@
-# analizapandac.github.io
